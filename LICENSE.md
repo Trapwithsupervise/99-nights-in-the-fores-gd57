@@ -1,4 +1,4 @@
-#  
+#  VIP brainrot evolution script is the best brainrot evolution script with auto-upgrade and undetectable. Safe, reliable, and optimized for maximum performance.
 
 
 
